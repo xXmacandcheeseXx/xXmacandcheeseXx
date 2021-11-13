@@ -1,0 +1,3 @@
+- I’m currently interested in C#
+- New to Github, don't expect me to know everything
+- Discord: **chicken noug#5500** if you want to give me project ideas
