@@ -1,3 +1,4 @@
 - Currently interested in Coding, Computers, Networking
+- Languages: C# | Wanting to learn C and C++, going to learn Java
 - New to Github, don't expect me to know everything
 - Discord: **eggs benedict#5500** if you want to give me project ideas
