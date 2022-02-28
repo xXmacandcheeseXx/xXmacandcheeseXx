@@ -1,3 +1,3 @@
-Discord: **BattlEye Anti-Cheat#1546**
+Discord: **wednesday#9999**
 
-Give me project ideas
+I am in need of project ideas
