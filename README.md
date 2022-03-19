@@ -1,3 +1,3 @@
-Discord: **wednesday#9999**
+Discord: **wednesday#3946**
 
 I am in need of project ideas
